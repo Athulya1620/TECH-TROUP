@@ -1,1 +1,1 @@
-# TECH-TROUP
+# TECH-GROUP
